@@ -9,5 +9,5 @@
 <p align="center">  #1 serapherd fan 
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=fangelic&color=#a6c0d2" />
+  <img src="https://komarev.com/ghpvc/?username=fangelic&color=lightgrey" />
 </p>
