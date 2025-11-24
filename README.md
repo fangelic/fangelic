@@ -7,3 +7,9 @@
 <p align="center">  ﹕c+h always encouraged . dnc 
 <p align="center">  i freely block and hide . 
 <p align="center">  #1 serapherd fan 
+
+<div align="center">
+
+![Profile Views](https://komarev.com/ghpvc/?username=fangelic&color=#a6c0d2)
+
+</div>
