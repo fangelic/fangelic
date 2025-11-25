@@ -7,7 +7,7 @@
 <p align="center">  ﹕c+h always encouraged . dnc 
 <p align="center">  i freely block and hide . 
 <p align="center">  #1 serapherd fan 
-
+<p align="center">  you likely will have to start a convo w me, im too shy to initiate sadly LOL
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=fangelic&color=lightgrey" />
 </p>
